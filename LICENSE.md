@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure meme coin sniper bot | rug-pull-detection + new-token-detection, the #1 meme coin sniper bot. Includes rug-pull-detection and new-token-detection
 
 
 
